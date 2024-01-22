@@ -1,4 +1,4 @@
-![FollowMeInstagramGIF (2)](https://github.com/DoniApriano/DoniApriano/assets/107307637/4caacce1-8e25-41dc-986a-c1bda9131dea)# 💫 About Me:
+# 💫 About Me:
 😁 A Student of Software Engineering 🏫 SMKN 2 KARANGANYAR<br>
 
 
